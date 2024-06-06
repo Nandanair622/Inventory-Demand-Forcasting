@@ -1,4 +1,4 @@
-# <strong><em> 🏭🏬DEAMAND WISE🛒🛍 </em></strong>
+# <strong><em> 🏭🏬DEMAND WISE🛒🛍 </em></strong>
 
 Inventory management is an essential aspect of any business that deals with the
 production and distribution of goods. It involves the careful monitoring and control
